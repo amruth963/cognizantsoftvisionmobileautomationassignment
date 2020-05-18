@@ -1,0 +1,2 @@
+# cognizantsoftvisionmobileautomationassignment
+cognizant softvision mobileautomation assignment on amazon app
